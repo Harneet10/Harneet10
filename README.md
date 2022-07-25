@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Harneet10
+- 👀 I’m interested in studying blockchain technology
+- 🌱 I’m currently learning web development 
+- 💞️ I’m looking to collaborate on any updates from the blockchain tech world
+- 📫 How to reach me - Instagram - @neethny - Email - singhharneet721@gmail.com
